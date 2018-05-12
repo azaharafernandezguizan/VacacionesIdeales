@@ -30,5 +30,5 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 ## Viajes fuera de Europa
 
 **Nueva York y un viaje por EEUU** Realmente lo que me apetecería sería vivir allí unos años.
-**Japón** Me encantaría disfrutar de Oriente y conocer mejor su cultura.
+**Japón** Me encantaría disfrutar de Oriente y conocer mejor su cultura. Incluir **Itsukushima**
 **Australia** Es un continente que me llama muchísmo la atención y ojalá algún día poder disfrutar de él.
