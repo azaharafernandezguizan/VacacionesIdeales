@@ -1,5 +1,5 @@
 
-## Viajes especiales realizados.
+# Viajes especiales realizados.
 
 Siempre me ha gustado viajar, desde pequeña ya me encantaba visitar nuevas ciudades. Pero no soy una persona de lugares veraniegos, ni playas.
 Soy alguien que adora los museos, la arquitectura y en caso de necesitar aire libre prefiero los parques naturales. 
