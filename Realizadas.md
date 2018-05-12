@@ -29,6 +29,7 @@ Como todos los pueblecitos de la Sierra de Francia, son lugares pintorescos, tra
 **Sevilla** y sus pueblos cercanos como Dos Hermanas y Alcalá de Guadaira, siempre ocuparán un lugar muy especial en mi corazón. Ese sol permanente que hace que te levantes con una sonrisa, esa ciudad tan bonita con ese ambiente fabuloso. Viví tres años allí y volví el año pasado para recordar y disfrutar y cuando volvía a casa, sentía de nuevo esa pena tremenda.
 Es una ciudad para disfrutar, para entrar en la Giralda, ir a la plaza de España, disfrutar del Real Alcazar, pasear por el Guadalquivir y por Triana, sin dejar de lado las Setas y el Parque María Luisa.
 Aparte de Alcalá de Guadaira y Dos Hermanas, Santiponce también es un lugar muy bonito. Pero de los pueblos mas bonitos de la provincia yo destacaría Carmona, de verdad que merece una visita.
+También tuve tiempo a visitar Cádiz, Jérez, Conil de la Frontera y Huelva, pero me queda pendiente Granada y Córdoba
 
 **Bilbao**, estuve sólo una tarde este año tras asistir a la BilboStack y claramente es una ciudad para volver, con una mezcla entre lo industrial, lo tradicional y lo moderno increíble.
 
@@ -37,6 +38,9 @@ y he ido descubriendo nuevos lugares bonitos y aunque la arquitectura de Gaudí 
 
 **Madrid** he estado varias veces, sólo de pasada y por eso para mí es un pendiente. Necesito entrar en muchos museos, asistir a teatros, relajarme una tarde en el Retiro, irme de compras...
 
+**Valencia**, una ciudad que he visitado primero de vacaciones para poder ir a la ciudad de las Artes y de las Ciencias y luego en un congreso en el que aproveché a conocer la ciudad propiamente. He de decir que es una ciudad mediterránea preciosa.
+
+**Asturias** Tengo el lujo de vivir en el paraíso y de visitar habitualmente sus rincones, durante una temporada realizé rutas de montaña, estuvimos en casas rurales... Pero también disfruto tratando de visitar pueblos que nunca hemos visto, simplemente cogiendo el coche y ruteando un poco.
 
 ## Lugares fuera de España
 
