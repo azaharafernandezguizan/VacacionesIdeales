@@ -14,16 +14,22 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 **Mallorca** pero eso sí, en temporada baja para disfrutar de la isla sin saturaciones.
 
+**Cuenca + Valencia** Tengo ganas de conocer Cuenca y de pasar unos días de relax en Valencia.
+
 
 ## Viajes por Europa
 
 **Praga + Viena + Munich** La idea es disfrutar de unos días en cada ciudad y para ello ir en avión a Praga, desde allí en tren a Viena y nuevamente en tren a Munich y ya volar de regreso.
+
+**Tour Harry Potter por Londres + Escocia** De las veces que he estado en Inglaterra nunca he ido a Escocia y además tengo muchas ganas de hacer el tour Harry Potter.
 
 **Irlanda (again)** Quiero ir y disfrutar con mi marido de ella, alquilar un coche y recorrar con él.
 
 **Bayona + Carcassona + Pau** Volver de nuevo a Francia pero esta vez en la zona que linda con España. --> Posible con Peter
 
 **Grecia** Espero poder ir algún día
+
+**Italia** Tengo ganas de volver pero con Juanma, siempre he estado yo sola y me apetece disfrutarla en pareja.
 
 **Finlandia + Suecia + Noruega** Este viaje si que me involucra conseguir unos ahorrillos, pero espero conseguir hacerlo.
 
