@@ -6,11 +6,9 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 **Madrid** Quiero ir al Museo del Prado, al Museo de Ciencias, a ver un musical, al planetario, a relajarme una tarde en el Parque del Retiro, de compras...
 
-**Toledo + Avila + Segovia** Un viaje imprescindible para mí, para el que tengo que encontrar hueco muy pronto. --> Posible con Peter
+**Toledo + Cordoba + Granada + Sevilla + Salamanca** Un viaje imprescindible para mí, para el que tengo que encontrar hueco muy pronto. --> Posible con Peter
 
 **Vigo + Oporto + Coimbra + Lisboa + Cáceres** Tengo este viaje planeado, uniendo diversas zonas como uno de los que mas ganas tengo. --> Posible con Peter
-
-**Sevilla (again) + Cordoba + Granada** Porque cuando estuve viviendo en Sevilla no tuve tiempo suficiente 
 
 **Mallorca** pero eso sí, en temporada baja para disfrutar de la isla sin saturaciones.
 
@@ -19,9 +17,11 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 ## Viajes por Europa
 
-**Praga + Viena + Munich** La idea es disfrutar de unos días en cada ciudad y para ello ir en avión a Praga, desde allí en tren a Viena y nuevamente en tren a Munich y ya volar de regreso.
+**Praga + Viena + Munich + Amsterdam** La idea es disfrutar de unos días en cada ciudad y para ello ir en avión a Praga, desde allí en tren a Viena y nuevamente en tren a Munich y lo mismo hacia Amsterdam y ya volar de regreso. Hay interrail con bonos interesantes.
 
 **Tour Harry Potter por Londres + Escocia** De las veces que he estado en Inglaterra nunca he ido a Escocia y además tengo muchas ganas de hacer el tour Harry Potter.
+
+**París + DisneyLand** Volver a disfrutar de los museos y del parque temático.
 
 **Irlanda (again)** Quiero ir y disfrutar con mi marido de ella, alquilar un coche y recorrar con él.
 
@@ -35,7 +35,7 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 ## Viajes fuera de Europa
 
-**Nueva York y un viaje por EEUU** Realmente lo que me apetecería sería vivir allí unos años.
+**Nueva York y un viaje por EEUU** Realmente lo que me apetecería sería vivir allí unos años, pero el viaje debe incluir **Parque temático de Harry Potter**
 
 **Japón** Me encantaría disfrutar de Oriente y conocer mejor su cultura. Incluir **Itsukushima**
 
