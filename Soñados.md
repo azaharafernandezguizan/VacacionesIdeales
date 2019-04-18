@@ -6,9 +6,13 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 **Madrid** Quiero ir al Museo del Prado, al Museo de Ciencias, a ver un musical, al planetario, a relajarme una tarde en el Parque del Retiro, de compras...
 
-**Toledo + Cordoba + Granada + Sevilla + Salamanca** Un viaje imprescindible para mí, para el que tengo que encontrar hueco muy pronto. --> Posible con Peter
+**Toledo** Un viaje imprescindible para mí, para el que tengo que encontrar hueco muy pronto. --> Posible con Peter
+
+**Cordoba + Granada** Porque parece mentira que en tres años que viví en Sevilla no haya visitado estas dos ciudades.
 
 **Vigo + Oporto + Coimbra + Lisboa + Cáceres** Tengo este viaje planeado, uniendo diversas zonas como uno de los que mas ganas tengo. --> Posible con Peter
+
+**San Sebastian + Bayona** Para una escapada corta.
 
 **Mallorca** pero eso sí, en temporada baja para disfrutar de la isla sin saturaciones.
 
@@ -17,19 +21,15 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 ## Viajes por Europa
 
-**Praga + Viena + Munich + Amsterdam** La idea es disfrutar de unos días en cada ciudad y para ello ir en avión a Praga, desde allí en tren a Viena y nuevamente en tren a Munich y lo mismo hacia Amsterdam y ya volar de regreso. Hay interrail con bonos interesantes.
+**Burdeos + Ginebra + Innsbruck + Viena + Salzburgo + Verona + Niza + Carcasona** Un pequeño tour en coche, en el que podemos disfrutar los tres.
+
+**Amsterdam** Una ciudad que tengo muchas ganas de conocer y disfrutar, incluso recorrer en bicicleta!.
+
+**Praga** Una escapada ideal para un puente corto.
 
 **Tour Harry Potter por Londres + Escocia** De las veces que he estado en Inglaterra nunca he ido a Escocia y además tengo muchas ganas de hacer el tour Harry Potter.
 
-**París + DisneyLand** Volver a disfrutar de los museos y del parque temático.
-
-**Irlanda (again)** Quiero ir y disfrutar con mi marido de ella, alquilar un coche y recorrar con él.
-
-**Bayona + Carcassona + Pau** Volver de nuevo a Francia pero esta vez en la zona que linda con España. --> Posible con Peter
-
 **Grecia** Espero poder ir algún día
-
-**Italia** Tengo ganas de volver pero con Juanma, siempre he estado yo sola y me apetece disfrutarla en pareja.
 
 **Finlandia + Suecia + Noruega** Este viaje si que me involucra conseguir unos ahorrillos, pero espero conseguir hacerlo.
 
