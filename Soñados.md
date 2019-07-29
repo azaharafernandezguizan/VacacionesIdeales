@@ -4,15 +4,15 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 ## Viajes por la Península e Islas.
 
-**Madrid** Quiero ir al Museo del Prado, al Museo de Ciencias, a ver un musical, al planetario, a relajarme una tarde en el Parque del Retiro, de compras...
+**Madrid** Quiero ir a ver un musical y al planetario.
 
 **Toledo** Un viaje imprescindible para mí, para el que tengo que encontrar hueco muy pronto. --> Posible con Peter
 
 **Cordoba + Granada** Porque parece mentira que en tres años que viví en Sevilla no haya visitado estas dos ciudades.
 
-**Vigo + Oporto + Coimbra + Lisboa + Cáceres** Tengo este viaje planeado, uniendo diversas zonas como uno de los que mas ganas tengo. --> Posible con Peter
+**Vigo + Oporto + Aveiro + Sintra + Lisboa + Braga + Évora + Cáceres** Tengo este viaje planeado, uniendo diversas zonas como uno de los que mas ganas tengo. --> Posible con Peter
 
-**San Sebastian + Bayona** Para una escapada corta.
+**San Sebastian** Para una escapada corta.
 
 **Mallorca** pero eso sí, en temporada baja para disfrutar de la isla sin saturaciones.
 
@@ -21,11 +21,11 @@ Aquí voy a hacer un listado de aquellos viajes tanto dentro de la Península Ib
 
 ## Viajes por Europa
 
-**Burdeos + Ginebra + Innsbruck + Viena + Salzburgo + Verona + Niza + Carcasona** Un pequeño tour en coche, en el que podemos disfrutar los tres.
+**Bayona + Carcasona + Costa Azul + Provenza** Un pequeño tour en coche, en el que podemos disfrutar los tres.
 
 **Amsterdam** Una ciudad que tengo muchas ganas de conocer y disfrutar, incluso recorrer en bicicleta!.
 
-**Praga** Una escapada ideal para un puente corto.
+**Praga + Viena + Hallstat + Castillos Disney + Innbruck + Ginebra + Salzburgo** Un tour para combinar coche y avión.
 
 **Tour Harry Potter por Londres + Escocia** De las veces que he estado en Inglaterra nunca he ido a Escocia y además tengo muchas ganas de hacer el tour Harry Potter.
 
