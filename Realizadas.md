@@ -18,8 +18,8 @@ Y también la cercanía a Asturias, cualquier pueblo costero de la provincia de 
 Pero para mí la ciudad que me ha encandilado es A Coruña, nunca me cansaré de ir y aunque la gastronomía y arquitectura de Santiago de Compostela sea única, para mí A Coruña con su castillo de San Antón, su Torre de Hercules, su paseo marítimo, y sus museos (acuario, museo de ciencias, museo de bellas artes) me hacen sentir muy agusto.
 Recientemente he estado de visita por las Rias Baixas, pero todavía requieren una visita futura con mas profundidad.
 
-**Santander**, santander ciudad no es de las que más me hayan entusiasmo aunque evidentemente es bonita. Pero he disfrutado muchísimo de Comillas, de San Vicente del Barco y sobre todo de uno de mis pueblos favoritos: Santillana del Mar.
-Un pueblo de piedra con una arquitectura medieval, plagado de tiendas de artesanía y en el que darte una vuelta es siempre un placer. También disfruté de un fin de semana espectacular en Suances.
+**Cantabria**, Santander ciudad no es de las que más me hayan entusiasmo aunque evidentemente es bonita. Pero he disfrutado muchísimo de Comillas, de San Vicente del Barco y sobre todo de uno de mis pueblos favoritos: Santillana del Mar.
+Un pueblo de piedra con una arquitectura medieval, plagado de tiendas de artesanía y en el que darte una vuelta es siempre un placer. También disfruté de un fin de semana espectacular en Suances. También me gustó mucho conocer Castro Urdiales.
 
 **Salamanca** es una ciudad tremendamente bonita, como véis para mí toda ciudad llena de cultura y edificios antiguos tiene un atractivo único, y dentro de la provincia está el que posiblemente sea mi pueblo favorito para unos dias de relax: San Esteban de la Sierra.
 Como todos los pueblecitos de la Sierra de Francia, son lugares pintorescos, tranquilos, con un clima fenomenal y vecinos muy acogedores. En la zona también se encuentran Miranda del Castañar, Mogarraz y La Alberca. Tremendamente preciosos, repleto de encinas que son unos de mis árboles preferidos.
@@ -36,7 +36,7 @@ También tuve tiempo a visitar Cádiz, Jérez, Conil de la Frontera y Huelva, pe
 **Barcelona** estuve una vez en una visita con amigos durante un fin de semana intenso en el que recorrimos gran parte de la ciudad y no es de las que más me haya gustado. Luego he vuelto por trabajo en un par de ocasiones,
 y he ido descubriendo nuevos lugares bonitos y aunque la arquitectura de Gaudí me parece fabulosa, sigue sin ser una ciudad que me encante.
 
-**Madrid** he estado varias veces, sólo de pasada y por eso para mí es un pendiente. Necesito entrar en muchos museos, asistir a teatros, relajarme una tarde en el Retiro, irme de compras...
+**Madrid** he estado varias veces, sólo de pasada y por eso para mí es un pendiente. En 2019 decidimos pasar un día, yendo y volviendo en avión y nos dió tiempo a pasear por el centro, disfrutar del retiro y sus barcas, de la Feria del libro y también del planetario!!
 
 **Valencia**, una ciudad que he visitado primero de vacaciones para poder ir a la ciudad de las Artes y de las Ciencias y luego en un congreso en el que aproveché a conocer la ciudad propiamente. He de decir que es una ciudad mediterránea preciosa.
 
